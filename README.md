@@ -1,2 +1,2 @@
 # Propuestas
-Documento con el conjunto de propuestas necesarias para lograr salvar a México
+Documento con el conjunto de recomendaciones en via de rescate de México
